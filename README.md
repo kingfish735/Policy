@@ -1,2 +1,0 @@
-# Policy
-Photography doctor policy
